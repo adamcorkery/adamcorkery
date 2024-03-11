@@ -1,1 +1,1 @@
-Hi I'm Adam, im learning electronic engineering
+Hi I'm Adam, I'm learning electronic engineering
